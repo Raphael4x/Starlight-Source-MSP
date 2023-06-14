@@ -4,4 +4,4 @@ MovieStarPlanet Tool Named Starlight Creates fast Movies with a Multi Threading 
 Why im Leaking this?
 
 Because all of the Tool Looks the Same everyone Skids FameX or Other Tools isnt that pretty Lame?
-and the Owner (Requiem) is just a Rude Person and cant say the truth :/
+and someone of the team celebrity is a bitch 
